@@ -1,3 +1,5 @@
+<img width="637" height="235" alt="Screenshot 2025-07-30 at 16-31-22 Pin on Pure vibes" src="https://github.com/user-attachments/assets/65c3953a-042b-4d52-b62c-dd7533e82658" />
+
 ## ⋆｡‧˚ʚ♡ɞ˚‧｡⋆ BRIDGET'S PROFILE
 
 ⤷ ゛NAME:Bridget or Wandererˎˊ˗
