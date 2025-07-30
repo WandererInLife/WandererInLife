@@ -16,7 +16,7 @@
 
 ⤷ ゛FANDOMS:HARRY POTTER [No I do not support JK Rowling. I get my things second-hand] ~ FORSAKEN [Getting into it just now due to oomfs] ~ THE AMAZING DIGITAL CIRCUS ~ EPIC THE MUSICAL [I have no say in the controversey. I have my views, you have yours.] ~ TRANSFORMERSˎˊ˗
 
-⤷ ゛ADVISED:Please, please, and yet another please, tell me if I am making you uncomfortable. I do not mean it intentionally and I know my humor may be weird when I soften up around you, so tell me if you're uncomfortable. I'm also sensitive towards friends, so if I have a feeling you don't like me or find me annoying, I may begin to distance from you.ˎˊ˗
+⤷ ゛ADVISED:Please, please, and yet another please, tell me if I am making you uncomfortable. I do not mean it intentionally and I know my humor may be weird when I soften up around you, so tell me if you're uncomfortable. I'm also sensitive towards friends, so if I have a feeling you don't like me or find me annoying, I may begin to distance from you, but this is mostly due to the fact I think you need space.ˎˊ˗
 
   ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ
 
