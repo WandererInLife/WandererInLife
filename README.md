@@ -15,4 +15,10 @@
 ⤷ ゛FAVORITE SONGS:'THIS WILL MAKE YOU LOVE AGAIN - IAMX' / 'YOU LOVE ME - KIMYA DAWSON' / 'HAVE FAITH, HORATIO - CHASE PETRA' / 'NOT ALLOWED - TV GIRL' / 'BLUE HAIR - TV GIRL' / 'CIGARETTES OUT THE WINDOW - TV GIRL' / 'METEOR SHOWER - CAVETOWN' / 'TREEHOUSE - CAVETOWN' / 'DEVIL TOWN - CAVETOWN' / 'BOYS WILL BE BUGS - CAVETOWN' / 'SIMPLE SONG - SUSHI SOUCY' / 'DEEP BREATHS - SUSHI SOUCY' / 'GOD MUST HATE ME - CATIE TURNER'ˎˊ˗
 
 ⤷ ゛ADVISED:Please, please, and yet another please, tell me if I am making you uncomfortable. I do not mean it intentionally and I know my humor may be weird when I soften up around you, so tell me if you're uncomfortable. I'm also sensitive towards friends, so if I have a feeling you don't like me or find me annoying, I may begin to distance from you.ˎˊ˗
-  
+
+  ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ
+
+  MY OC HARVEY:
+
+  <img width="1024" height="768" alt="Untitled10_20250726175032" src="https://github.com/user-attachments/assets/b041fbfe-34fb-4254-86b7-1c8e35e60576" />
+
