@@ -26,5 +26,10 @@
 
   <img width="1024" height="768" alt="Untitled10_20250726175032" src="https://github.com/user-attachments/assets/b041fbfe-34fb-4254-86b7-1c8e35e60576" />
 
+  MY OC SHIP MEGAN AND HARVEY [LUXFLOWER]:
+
+  <img width="751" height="751" alt="Screenshot 2025-09-02 at 16-34-20 • Discord @∘Bell ✦" src="https://github.com/user-attachments/assets/c85cd958-8f6b-4ff4-908f-24adee31fda0" />
+
+
 
 [Do NOT harass @ZEROHORIZONS or ANY of my friends if we have an argument or disagreement, gtfo of my face if you want to do that, coward.]
