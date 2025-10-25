@@ -4,7 +4,7 @@
 
 ⤷ ゛NAME:Bridget or Wandererˎˊ˗
 
-⤷ ゛PRONNOUNS:She/Theyˎˊ˗
+⤷ ゛PRONOUNS:She/Theyˎˊ˗
 
 ⤷ ゛DNI:Homophobes, Pedophiles, Zoophiles, Ableists, Sexists, etc, etc. Basic Dni Criteriaˎˊ˗
 
