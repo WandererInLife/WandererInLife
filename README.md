@@ -21,3 +21,16 @@
 *So, to clear up some possible altercations in the future, let me establish boundies.*
 
 ![♡](https://github.com/user-attachments/assets/abfe7a34-7161-4d0a-b1a2-9c94962539bc)
+
+**DNI**:
+
+*PEDOPHILES .., ZOOPHILES .., SEXISTS .., DARKSHIPPERS .., ISLAMAPHOBES .., HOMOPHOBES .., ETC* **[ Instantly. Out of my sight. ]**
+
+*PUSHY PEOPLE* **[ I can take it light-heartedly as in a joking way, but if you keep trying to make me do things which I cannot/do not want to do I will obviously distance from you and unfriend or even block you ]**
+
+*TROLLS* **[ Eh. Do what you will. I always end up ignoring, joking around with, or blocking these people. But don't 'troll' people with sensitive topics such as ab---e or r--- (this has happened)]**
+
+**IWC**:
+
+*PEOPLE WHO GET VERY VERY ATTACHED EASILY* **[ I will be there for you as a friend, but at times I can distance myself from people and come back once in a while or randomly come back again. I have yet to figure out why I'm like this but if we meet consistently I may start to come to you as a habit! I do message all my friends who I know ]**
+
