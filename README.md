@@ -1,4 +1,4 @@
-<img width="1155" height="351" alt="CUTE" src="https://github.com/user-attachments/assets/44abfa63-deb4-49a3-91b4-4bef99bc2a37" />
+<img width="446" height="149" alt="Screenshot 2025-11-09 at 16-14-57 (7) Pinterest" src="https://github.com/user-attachments/assets/c34b0999-3f06-4241-9e9a-7919fd472a5a" /><img width="1155" height="351" alt="CUTE" src="https://github.com/user-attachments/assets/44abfa63-deb4-49a3-91b4-4bef99bc2a37" />
 
 *𓏲ּ𝄢 WANDERER'S WHIMSICAL DESCRIPTON 𓏲ּ𝄢*
 
@@ -11,5 +11,4 @@
 ⟡ INTERESTS: **TRANSFORMERS,, HARRY POTTER,, WARRIOR CATS,, MUSICALS,, MUSIC,, POETRY,, DRAWING**
 
 
-<img width="243" height="81" alt="Screenshot 2025-11-09 at 16-09-00 (7) Pinterest" src="https://github.com/user-attachments/assets/31cc76cd-5ad2-48ca-82b2-15aa8831fef5" />
-<img width="243" height="81" alt="Screenshot 2025-11-09 at 16-09-00 (7) Pinterest" src="https://github.com/user-attachments/assets/5fb8d8a1-4e6b-4344-addc-3fd49e583008" />
+<img width="446" height="149" alt="Screenshot 2025-11-09 at 16-14-57 (7) Pinterest" src="https://github.com/user-attachments/assets/a85896a7-8590-4dfa-b9e0-f2a129e11f14" />
