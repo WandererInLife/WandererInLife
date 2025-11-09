@@ -11,4 +11,6 @@
 ⟡ INTERESTS: **TRANSFORMERS,, HARRY POTTER,, WARRIOR CATS,, MUSICALS,, MUSIC,, POETRY,, DRAWING**
 
 
-<img width="446" height="149" alt="Screenshot 2025-11-09 at 16-14-57 (7) Pinterest" src="https://github.com/user-attachments/assets/a85896a7-8590-4dfa-b9e0-f2a129e11f14" />
+
+![header _ੈ✩‧₊˚](https://github.com/user-attachments/assets/03974a96-bbc2-472b-bb4d-682c356b4744)
+
