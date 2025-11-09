@@ -17,3 +17,5 @@
 *GREETING*
 
 `-☆ Hello there! As seen from the information above my name is Bridget! Nicknames are typically for friends only but do what you will! I got by she/they pronouns and I really, REALLY like music! I tend to get fixated on fandoms purely because of my ocs, so you'll see me [for ponytown users] more often than not in an oc skin!`
+
+*So, to clear up some possible altercations in the future, let me establish boundies.*
