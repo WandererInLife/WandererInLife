@@ -18,9 +18,26 @@
 
 `-☆ Hello there! As seen from the information above my name is Bridget! Nicknames are typically for friends only but do what you will! I got by she/they pronouns and I really, REALLY like music! I tend to get fixated on fandoms purely because of my ocs, so you'll see me [for ponytown users] more often than not in an oc skin!`
 
-*So, to clear up some possible altercations in the future, let me establish boundies.*
+*T![header _ੈ✩‧₊˚](https://github.com/user-attachments/assets/cd8560f8-809d-4391-ad01-70b1bdd04d22)
+
+*⊱ ۫ ׅ ✧ YAP*
+
+`I love songs made by Alex G, Mitski, Big Thief, Adrienne Lenker and Cavetown! Musical preferences? Hamilton and Epic! Six the Musical is up there too! I listenened to only some songs of Dear Evan Hansen and Be More Chill - I may or may not get into it.`
+
+`I LOOOVE Not by Big Thief, You Love Me by Kimya Dawson, Sleep Talking by Indigo De Souza, My Shot in Hamilton, Heavy Metal Lover by Lady Gaga, and many more! Songs of the above mentioned artists are up there too!`
+
+`I mainly like making ocs in fandoms!`
+
+`I make poems when bored.`
+
+`And I like writing!`
+
 
 ![♡](https://github.com/user-attachments/assets/abfe7a34-7161-4d0a-b1a2-9c94962539bc)
+
+‹𝟹*To clear up some possible altercations in the future, let me establish boundies.*
+
+‹𝟹
 
 **DNI**:
 
