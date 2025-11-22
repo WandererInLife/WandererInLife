@@ -22,7 +22,7 @@
 
 *⊱ ۫ ׅ ✧ YAP*
 
-`I love songs made by Alex G, Mitski, Big Thief, Adrienne Lenker and Cavetown! Musical preferences? Hamilton and Epic! Six the Musical is up there too! I listenened to only some songs of Dear Evan Hansen and Be More Chill - I may or may not get into it.`
+`I love songs made by Alex G, Mitski, Big Thief, Adrianne Lenker and Cavetown! Musical preferences? Hamilton and Epic! Six the Musical is up there too! I listenened to only some songs of Dear Evan Hansen and Be More Chill - I may or may not get into it.`
 
 `I LOOOVE Not by Big Thief, You Love Me by Kimya Dawson, Sleep Talking by Indigo De Souza, My Shot in Hamilton, Heavy Metal Lover by Lady Gaga, and many more! Songs of the above mentioned artists are up there too!`
 
