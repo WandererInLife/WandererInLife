@@ -20,6 +20,7 @@
 - I love commentary and documentaries - especially if it's on horror! I love putting it as my background noise when playing Ponytown ^-^
 
 - I can grow distant from you if we don't interact often - but I'm up for conversations from time to time! I like all my friends :p
+- 
 ﹌﹌﹌﹌﹌
 <img width="1500" height="500" alt="Untitled21_20251211150641" src="https://github.com/user-attachments/assets/cfba3042-8459-41fb-ad84-0f19009a8898" />
 
