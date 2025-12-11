@@ -75,7 +75,7 @@
 
 *INTERACT WITH CAUTION* 
 
-➜ AGES 12- ★ Proshippers (You can interact with me! However there is a limit to what I can process and am comfortable with!)
+➜ AGES 12- ★ PROSHIPPERS (You can interact with me! However there is a limit to what I can process and am comfortable with!)
 
 *✧˖°.INTERACT✧˖°.*
 
@@ -85,6 +85,9 @@
 
 ➜ ★ CASUAL PEOPLE! Even if I'm not in the same fandom as you, I enjoy hearing about your fandoms and interests! Sometimes my interests are started from my friends giving suggestions!
 
+➜ ★ RAREPAIR SHIPPERS! Explains itself ^-^
+
+➜ ★ FELLOW WRITER AND OC MAKERS! I love y'all and I love sharing art and silly facts with you >,< I am okay with dark topics in writing, but it's romanticizing it is when I feel uncomfortable.
 
 ﹌﹌﹌﹌﹌
 <img width="1500" height="500" alt="Untitled21_20251211150320" src="https://github.com/user-attachments/assets/814c0d4a-dde6-4e79-9ca2-52901ed841f3" />
