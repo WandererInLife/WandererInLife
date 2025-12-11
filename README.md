@@ -4,7 +4,9 @@
 # `❀˖° BRIDGET'S COVE ❀˖°`
 
 𓂃. HELLO! I'm Bridget or Wanderer for my fellow Ponytowners!!! I'm usually in the Transformers or Hazbin Hotel Area - or you'll find me around the bakery or docks. Usually I either stay put in one spot with my friends or I'm wandering the map. I tend to walk around a lot in game when I'm aimless. C+H available most of the time !!! I love making friends but can be quite awkward at first - usually Im in one of my ocs skins because I LOVE making ocs. Sometimes I can yap a lot or be very quiet - usually when I'm tired. Below are some things you should know about me!
+
 ﹌﹌﹌﹌﹌
+
 <img width="1500" height="500" alt="Untitled21_20251211150926" src="https://github.com/user-attachments/assets/79340c53-54a9-46df-8f6c-620a8404b912" />
 
 # `୨୧ THINGS ABOUT ME ୨୧ 
