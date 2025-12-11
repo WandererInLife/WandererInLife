@@ -21,8 +21,16 @@
 
 - I can grow distant from you if we don't interact often - but I'm up for conversations from time to time! I like all my friends :p
 
-- Sometimes I can tend to multitask so I might not see your messages - please whisper me if I don't respond! If you do whisper me and I don't respond I might be doing something offtab or, a more funny alternative, I'm lazy - I'll go up to you and boop you if I'm lazy but if I'm offtab I won't do anything! 
- 
+# `⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔`
+
+**₊⊹ CAREFUL INFORMATION ₊⊹**
+
+- Sometimes I can tend to multitask so I might not see your messages - please whisper me if I don't respond! If you do whisper me and I don't respond I might be doing something offtab or, a more funny alternative, I'm lazy - I'll go up to you and boop you if I'm lazy but if I'm offtab I won't do anything!
+
+- I'm not sure about my emotions at time... I don't exactly know what I feel sometimes but I will react with what I know is morally right.
+
+- Sometimes when I'm in a bad mood I tend to not respond. There's no hard feelings it's just I feel irritated about something, usually after a fight or something I've seen. I'll start using the 'Busy' status when there's moments like this. Ponytown is a comfort game for me.
+
 ﹌﹌﹌﹌﹌
 <img width="1500" height="500" alt="Untitled21_20251211150641" src="https://github.com/user-attachments/assets/cfba3042-8459-41fb-ad84-0f19009a8898" />
 
@@ -57,11 +65,18 @@
 ﹌﹌﹌﹌﹌
 <img width="1500" height="500" alt="Untitled21_20251211150422" src="https://github.com/user-attachments/assets/f1a9155b-1fae-4975-9916-379c4e27504c" />
 
-# `𓂃 ོ☼ DO NOT INTERACT - INTERACT WITH CAUTION [] TW 𓂃 ོ☼`
+# `𓂃 ོ☼ DO NOT INTERACT - INTERACT WITH CAUTION - INTERACT [] TW 𓂃 ོ☼`
 
-*DNI* - P.dos, Incest Encouragers, R.pists, Racists, Homophobes, Transphobes, BASIC DNI CRITERIA. AGES 10-.
+*DNI* - 
 
-*INTERACT WITH CAUTION* - AGES 12-.
+➜ P.dos ★ Incest Encouragers ★ R.pists ★ Racists ★ Homophobes ★ Transphobes ★ BASIC DNI CRITERIA ★ AGES 10- ★ Darkshippers (No, I will not harass you or try and do anything to you. It's just past experiences have given me a deep uncomfortable feeling with topics such as this.)
+
+*INTERACT WITH CAUTION* 
+
+➜ AGES 12- ★ Proshippers (You can interact with me! However there is a limit to what I can process and am comfortable with!)
+
+*INTERACT*
+
 
 ﹌﹌﹌﹌﹌
 <img width="1500" height="500" alt="Untitled21_20251211150320" src="https://github.com/user-attachments/assets/814c0d4a-dde6-4e79-9ca2-52901ed841f3" />
