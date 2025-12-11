@@ -3,7 +3,7 @@
 
 # `❀˖° BRIDGET'S COVE ❀˖°`
 
-𓂃. HELLO! I'm Bridget or Wanderer for my fellow Ponytowners!!! I'm usually in the Transformers or Hazbin Hotel Area - or you'll find me around the bakery or docks. Usually I either stay put in one spot with my friends or I'm wandering the map. I tend to walk around a lot in game when I'm aimless. C+H available most of the time !!! I love making friends but can be quite awkward at first - usually Im in one of my ocs skins because I LOVE making ocs. Sometimes I can yap a lot or be very quiet - usually when I'm tired. Below are some things you should know about me!
+𓂃. HELLO! I'm Bridget or Wanderer for my fellow Ponytowners!!! I'm usually in the Transformers or Hazbin Hotel Area - or you'll find me around the Bakery or Docks. Usually I either stay put in one spot with my friends or I'm wandering the map. I tend to walk around a lot in game when I'm aimless. C+H available most of the time !!! I love making friends but can be quite awkward at first - usually Im in one of my ocs skins because I LOVE making ocs. Sometimes I can yap a lot or be very quiet - usually when I'm tired. Below are some things you should know about me!
 
 ﹌﹌﹌﹌﹌
 
@@ -21,15 +21,17 @@
 
 - I can grow distant from you if we don't interact often - but I'm up for conversations from time to time! I like all my friends :p
 
-# `⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔`
-
-**₊⊹ CAREFUL INFORMATION ₊⊹**
+# `# `⏔₊⊹ CAREFUL INFORMATION ₊⊹⏔`
 
 - Sometimes I can tend to multitask so I might not see your messages - please whisper me if I don't respond! If you do whisper me and I don't respond I might be doing something offtab or, a more funny alternative, I'm lazy - I'll go up to you and boop you if I'm lazy but if I'm offtab I won't do anything!
 
 - I'm not sure about my emotions at time... I don't exactly know what I feel sometimes but I will react with what I know is morally right.
 
 - Sometimes when I'm in a bad mood I tend to not respond. There's no hard feelings it's just I feel irritated about something, usually after a fight or something I've seen. I'll start using the 'Busy' status when there's moments like this. Ponytown is a comfort game for me.
+
+- At times or nearly ALL the time I LOVE sitting beside other people who have "C+H" in their name! If I make you feel uncomfortable, please inform me!
+
+- Up to a good chat! Especially if I'm in crowded areas! I tend to lose things to talk about so usually you can take the lead with the conversation!
 
 ﹌﹌﹌﹌﹌
 <img width="1500" height="500" alt="Untitled21_20251211150641" src="https://github.com/user-attachments/assets/cfba3042-8459-41fb-ad84-0f19009a8898" />
@@ -67,7 +69,7 @@
 
 # `𓂃 ོ☼ DO NOT INTERACT - INTERACT WITH CAUTION - INTERACT [] TW 𓂃 ོ☼`
 
-*DNI* - 
+*DNI*
 
 ➜ P.dos ★ Incest Encouragers ★ R.pists ★ Racists ★ Homophobes ★ Transphobes ★ BASIC DNI CRITERIA ★ AGES 10- ★ Darkshippers (No, I will not harass you or try and do anything to you. It's just past experiences have given me a deep uncomfortable feeling with topics such as this.)
 
@@ -75,7 +77,13 @@
 
 ➜ AGES 12- ★ Proshippers (You can interact with me! However there is a limit to what I can process and am comfortable with!)
 
-*INTERACT*
+*✧˖°.INTERACT✧˖°.*
+
+➜ ★ LGBTQIA+ COMMUNITY! **That** side of Society considers you weird? So am I! I'm questioning my identity, I'm wacky, I'm not 'normal' - I'll support you!
+
+➜ ★ FANS OF FANDOMS I'M APART OF! I love meeting with you all and having silly conversations! 
+
+➜ ★ CASUAL PEOPLE! Even if I'm not in the same fandom as you, I enjoy hearing about your fandoms and interests! Sometimes my interests are started from my friends giving suggestions!
 
 
 ﹌﹌﹌﹌﹌
