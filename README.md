@@ -21,7 +21,7 @@
 
 - I can grow distant from you if we don't interact often - but I'm up for conversations from time to time! I like all my friends :p
 
-# `# `⏔₊⊹ CAREFUL INFORMATION ₊⊹⏔`
+# `⏔₊⊹ CAREFUL INFORMATION ₊⊹⏔`
 
 - Sometimes I can tend to multitask so I might not see your messages - please whisper me if I don't respond! If you do whisper me and I don't respond I might be doing something offtab or, a more funny alternative, I'm lazy - I'll go up to you and boop you if I'm lazy but if I'm offtab I won't do anything!
 
