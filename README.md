@@ -9,7 +9,7 @@
 
 <img width="1500" height="500" alt="Untitled21_20251211150926" src="https://github.com/user-attachments/assets/79340c53-54a9-46df-8f6c-620a8404b912" />
 
-# `୨୧ THINGS ABOUT ME ୨୧ 
+# `୨୧ THINGS ABOUT ME ୨୧` 
 
 - Usually friends call me Bridget, but some nicknames you can use are Wanderer or Wand - some call me Traveler or Trav because of my Discord username ! XD
 
