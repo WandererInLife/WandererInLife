@@ -15,4 +15,11 @@
 
 
 ﹌﹌﹌﹌﹌
-<img width="1500" height="500" alt="Untitled21_20251211150641" src="https://github.com/user-attachments/assets/360d53e7-a733-4ae5-aabc-5de0d350da95" />
+<img width="1500" height="500" alt="Untitled21_20251211150422" src="https://github.com/user-attachments/assets/f1a9155b-1fae-4975-9916-379c4e27504c" />
+
+# `𓂃 ོ☼ DO NOT INTERACT - INTERACT WITH CAUTION 𓂃 ོ☼`
+
+﹌﹌﹌﹌﹌
+<img width="1500" height="500" alt="Untitled21_20251211150320" src="https://github.com/user-attachments/assets/814c0d4a-dde6-4e79-9ca2-52901ed841f3" />
+
+# `ㅤ♡ྀི ₊ FRIENDS ㅤ♡ྀི ₊`
