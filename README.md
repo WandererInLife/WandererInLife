@@ -102,4 +102,4 @@
 
 **FRIENDS** - @saltwaterapollon @scienceisntmorbid @riddledbatz @gunlolz @astrumfx @CookieBonBon @MirageAxolotl @moosipall !! I LOVE Y'ALL! Mwah mwah!!! /PLATONIC ^^ Stay safe!!!
 
-**THE SPECIAL FRIENDZO** - RYN, IF YOU'RE READING THIS, EVEN THOUGH WE'VE BEEN FRIENDS FOR LIKE I WEEK I LUV YOU SO MUCH YOU'RE SO FUNNY AND I LOVE YOU 2!!! Keep being yourself, I love reading what you have to say no matter how long it is >,<
+
