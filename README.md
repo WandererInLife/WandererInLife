@@ -98,7 +98,7 @@
 
 **ONLINE DAD** - @ZEROHORIOZNS ⬩ HIHIHIHHI! ILYSM STAY SAFE :D
 
-**CLOSE FRIENDS** - @Ihatebrainstorm @Rubizcube ⬩ THE ULTIMATE LESBIANS!!!! LITERALLY MY BEST FRIENDS × @EmpireofStone ⬩ HIHI DRAY! KEEP SHINING BRO YOU RULE!!! × BELLLLL ILYSMSMMSMSM!!!!
+**CLOSE FRIENDS** - @Ihatebrainstorm @Rubizcube ⬩ THE ULTIMATE DIVORCED NOW-JUST-FRIENDS LESBIANS!!!! LITERALLY MY BEST FRIENDS × @EmpireofStone ⬩ HIHI DRAY! KEEP SHINING BRO YOU RULE!!! × BELLLLL ILYSMSMMSMSM!!!!
 
 **FRIENDS** - @saltwaterapollon @scienceisntmorbid @riddledbatz @gunlolz @astrumfx @CookieBonBon @MirageAxolotl @moosipall !! I LOVE Y'ALL! Mwah mwah!!! /PLATONIC ^^ Stay safe!!!
 
