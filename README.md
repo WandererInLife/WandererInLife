@@ -75,6 +75,8 @@
 
 ➜ P.dos ★ Incest Encouragers ★ R.pists ★ Racists ★ Homophobes ★ Transphobes ★ BASIC DNI CRITERIA ★ AGES 10- ★ Darkshippers (No, I will not harass you or try and do anything to you. It's just past experiences have given me a deep uncomfortable feeling with topics such as this.)
 
+➜ Heavy, HEAVY DNI those who mock people for using neopronouns.
+
 *INTERACT WITH CAUTION* 
 
 ➜ AGES 12- ★ PROSHIPPERS (You can interact with me! However there is a limit to what I can process and am comfortable with!)
