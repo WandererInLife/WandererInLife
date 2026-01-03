@@ -38,7 +38,7 @@
 ﹌﹌﹌﹌﹌
 <img width="1500" height="500" alt="Untitled21_20251211150641" src="https://github.com/user-attachments/assets/cfba3042-8459-41fb-ad84-0f19009a8898" />
 
-# `⋆⁺࿐ LIKES - DISLIKE ⋆⁺࿐`
+# `⋆⁺࿐ LIKES - DISLIKES ⋆⁺࿐`
 
 **LIKES:**
 
@@ -73,13 +73,13 @@
 
 *DNI*
 
-➜ P.dos ★ Incest Encouragers ★ R.pists ★ Racists ★ Homophobes ★ Transphobes ★ BASIC DNI CRITERIA ★ AGES 10- ★ Darkshippers (No, I will not harass you or try and do anything to you. It's just past experiences have given me a deep uncomfortable feeling with topics such as this.)
+➜ P.dos ★ Incest Encouragers ★ R.pists ★ Racists ★ Homophobes ★ Transphobes ★ BASIC DNI CRITERIA ★ AGES 10- 
 
 ➜ Heavy, HEAVY DNI those who mock people for using neopronouns.
 
 *INTERACT WITH CAUTION* 
 
-➜ AGES 12- ★ PROSHIPPERS (You can interact with me! However there is a limit to what I can process and am comfortable with!)
+➜ AGES 12- ★ PROSHIPPERS (You can interact with me! However there is a limit to what I can process and am comfortable with!) ★ *heavy iwc!* DARKSHIPPERS (No, I will not harass you or try and do anything to you. It's just past experiences have given me a deep uncomfortable feeling with topics such as this.)
 
 *✧˖°.INTERACT✧˖°.*
 
