@@ -4,7 +4,7 @@ Uh hi ! I guess. I'm Bridget or Wanderer, choose your pick, and I'm a fan of Haz
 
 I don't have a set DNI, but just don't expect to get along with me if you're h - mophobic, ableist, racist, or a p - dophile. Do not condone harmful topics or sexualize sensitive things around me , please, I can get very uncomfortable. I can handle dark media being potrayed, but I get uncomforatble with the romanticization of it.
 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+![Image](https://github.com/user-attachments/assets/e901545d-fea4-40a7-b015-c2249994a165)
 
 NAMES : Bridget , Wanderer, Traveler
 
