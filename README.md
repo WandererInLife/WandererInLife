@@ -15,7 +15,7 @@ FANDOMS [] IN ORDER OF INTEREST [] : Harry Potter , Hazbin Hotel , Transformers 
 -
 Demigirl and Aceflux. No I don't want to be dating online strangers : shrug : .
 
-────୨ৎ────
+![Image](https://github.com/user-attachments/assets/efb4b456-b778-44c1-a6b8-e07fc32087c2)
 
 I love my ocs. Very much so. I love them more than I love the canon characters. Am I childish? Possibly. I'm quite eager to talk about them, be warned. 
 
