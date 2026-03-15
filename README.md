@@ -36,3 +36,5 @@ If you pressure me into doing something I'll probaly like it less. I find when I
 If I respond in short messages to you I'm probaly either tired or just not in the mood.
 
 # CLEAR COMMUNICATION? DING DING DING ! CLEAR COMMUNICATION?
+
+If you suspect something.ask.me. I don't need you spreading things because of an off-hand comment or 'he said' 'she said' 'they said' - TALK TO ME. If I don't know what's wrong I can't address it. Don't bring primary school behavior here, please. 
