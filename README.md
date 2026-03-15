@@ -19,7 +19,7 @@ Demigirl and Aceflux. No I don't want to be dating online strangers : shrug : .
 
 I love my ocs. Very much so. I love them more than I love the canon characters. Am I childish? Possibly. I'm quite eager to talk about them, be warned. 
 
-⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆
+![Image](https://github.com/user-attachments/assets/905e7eec-43d3-4fb1-8b7e-93b55fcb9761)
 
 SMALL THINGS : 
 
