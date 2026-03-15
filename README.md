@@ -2,4 +2,37 @@
 
 Uh hi ! I guess. I'm Bridget or Wanderer, choose your pick, and I'm a fan of Hazbin Hotel, Harry Potter and Transformers. I'm weird ? I know.
 
-I don't have a set DNI, but just don't expect to get along with me if you're homophobic, ableist, racist, or a pedophile. Do not condone harmful topics or sexualize sensitive things around me , please, I can get very uncomfortable. I can handle dark media being potrayed, but I get uncomforatble with the romanticization of it.
+I don't have a set DNI, but just don't expect to get along with me if you're h - mophobic, ableist, racist, or a p - dophile. Do not condone harmful topics or sexualize sensitive things around me , please, I can get very uncomfortable. I can handle dark media being potrayed, but I get uncomforatble with the romanticization of it.
+
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+
+NAMES : Bridget , Wanderer, Traveler
+
+PRONOUNS : She / They [Contemplating He/Him - unsure]
+
+FANDOMS [] IN ORDER OF INTEREST [] : Harry Potter , Hazbin Hotel , Transformers , Nerdy Prudes Must Die The Musical , Warrior Cats , Heathers The Musical
+
+-
+Demigirl and Aceflux. No I don't want to be dating online strangers : shrug : .
+
+────୨ৎ────
+
+I love my ocs. Very much so. I love them more than I love the canon characters. Am I childish? Possibly. I'm quite eager to talk about them, be warned. 
+
+⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆
+
+SMALL THINGS : 
+
+I can tend to forget to come you more and more often if our fandoms shift - you can still talk to me! Just I may not reach out because I'm that forgetful. 
+
+Please interact with caution if you're below the age of thirteen. If you're below the age of twelve I don't think I will friend you.
+
+I love drawing! And writing characters.
+
+I love music. Chase Petra is underrated AS HECK. NATURE VS NURTURE AND PACIFIC ARE SO PEAK LISTEN TO HER PLEASEPELASPELEAPSLEE. - O yeah my more general favorite song artists are Lady Gaga, Alex G, Big Thief, Adriannne Lenker, Mitski, Sushi Soucy, TV Girl, Mother Mother, The Crane Wives - okay enough of that. Musicals? Heathers. Epic. Hamilton. Nerdy Prudes Must Die. Matila. Six. Dear Evan Hansen.
+
+If you pressure me into doing something I'll probaly like it less. I find when I'm curious I tend to be more eager than when I'm irritated.
+
+If I respond in short messages to you I'm probaly either tired or just not in the mood.
+
+# CLEAR COMMUNICATION? DING DING DING ! CLEAR COMMUNICATION?
