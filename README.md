@@ -29,7 +29,7 @@ Please interact with caution if you're below the age of thirteen. If you're belo
 
 I love drawing! And writing characters.
 
-I love music. Chase Petra is underrated AS HECK. NATURE VS NURTURE AND PACIFIC ARE SO PEAK LISTEN TO HER PLEASEPELASPELEAPSLEE. - O yeah my more general favorite song artists are Lady Gaga, Alex G, Big Thief, Adriannne Lenker, Mitski, Sushi Soucy, TV Girl, Mother Mother, The Crane Wives - okay enough of that. Musicals? Heathers. Epic. Hamilton. Nerdy Prudes Must Die. Matila. Six. Dear Evan Hansen.
+I love music. Chase Petra is underrated AS HECK. NATURE VS NURTURE AND PACIFIC ARE SO PEAK LISTEN TO HER PLEASEPELASPELEAPSLEE. - O yeah my more general favorite song artists are Lady Gaga, Alex G, Big Thief, Adriannne Lenker, Mitski, Sushi Soucy, TV Girl, Mother Mother, The Crane Wives - okay enough of that. Musicals? Heathers. Epic. Hamilton. Nerdy Prudes Must Die. Matilda. Six. Dear Evan Hansen.
 
 If you pressure me into doing something I'll probaly like it less. I find when I'm curious I tend to be more eager than when I'm irritated.
 
