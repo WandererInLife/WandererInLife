@@ -13,7 +13,7 @@ PRONOUNS : She / They [Contemplating He/Him - unsure]
 FANDOMS [] IN ORDER OF INTEREST [] : Harry Potter , Hazbin Hotel , Transformers , Nerdy Prudes Must Die The Musical , Warrior Cats , Heathers The Musical
 
 -
-Demigirl and Aceflux. No I don't want to be dating online strangers : shrug : .
+Cupioquoiromantic (Cupioromantc and quoiromantic). No I don't want to be dating online strangers : shrug : . In a weird plantonic-not-so-platonic relationship but I love them :> [HI F!!]
 
 ![Image](https://github.com/user-attachments/assets/efb4b456-b778-44c1-a6b8-e07fc32087c2)
 
