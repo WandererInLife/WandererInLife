@@ -10,7 +10,7 @@ NAMES : Bridget , Wanderer, Traveler
 
 PRONOUNS : She / They [Contemplating He/Him - unsure]
 
-FANDOMS [] IN ORDER OF INTEREST [] : Harry Potter , Hazbin Hotel , Transformers , Nerdy Prudes Must Die The Musical , Warrior Cats , Heathers The Musical
+FANDOMS [] IN ORDER OF INTEREST [] : Percy Jackson [NEW FANDOM], Harry Potter , Hazbin Hotel , Transformers , Nerdy Prudes Must Die The Musical , Warrior Cats , Heathers The Musical
 
 -
 Cupioquoiromantic (Cupioromantc and quoiromantic). No I don't want to be dating online strangers : shrug : . In a weird plantonic-not-so-platonic relationship but I love them :> [HI F!!]
