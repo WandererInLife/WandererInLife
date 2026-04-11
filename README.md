@@ -8,6 +8,8 @@ RUINING YOUR REPUTATION? LANE. SAW. WHAT. YOU. DID. SHE CHOSE TO BAN YOU FROM TH
 
 Am I calling you groomers for engaging in those jokes with me? No, because you thought I was older! Of course you would! Am I calling you obnoxious assholes? Yes.
 
+Also, really tells how all you can talk about is my age rather than how you mocked me ! I was already making changes and still am! Its like trying to put a bandaid on a healing wound then ignoring the gaping gash right below it, is it not? When your entire humor is based around making fun of others then getting all scared when they confront you, deflect their questions, and get all 'oh woe is me' when their friends, who SAW you, decide they do not like you ban you from the server and blame that someone you mocked then you are honestly PATHETIC.
+
 -
 Ok. Listen here NO1, NO2, AND NO3 [you know very well who you are] do NOT fucking touch my ocs and mock me behind my back then try and act all innocent, ok? My ocs are representations of me in various different forms, so using them for a 'joke' when we are not even friends anymore is hysterical???? If you don't want to associate with me, then stop fucking dressing up as my ocs who are DEFINITELY associated with me and are coded with some of my personal struggles???? 
 
