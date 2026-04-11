@@ -1,4 +1,4 @@
-Ok. Listen here NO1, NO2, AND NO3 [you know very well who you are] do NOT fucking touch my ocs and mock me behind my back, ok? My ocs are representations of me in various different forms, so using them for a 'joke' when we are not even friends anymore is hysterical???? If you don't want to associate with me, then stop fucking dressing up as my ocs who are DEFINITELY associated with me and are coded with some of my personal struggles???? 
+Ok. Listen here NO1, NO2, AND NO3 [you know very well who you are] do NOT fucking touch my ocs and mock me behind my back then try and act all innocent, ok? My ocs are representations of me in various different forms, so using them for a 'joke' when we are not even friends anymore is hysterical???? If you don't want to associate with me, then stop fucking dressing up as my ocs who are DEFINITELY associated with me and are coded with some of my personal struggles???? 
 
 If you are adults, act like it. Also, you claim sooo much that you want more friends and ask people for respect and that you'll respect boundaries but this is the shit you do? NO WONDER?! 
 
