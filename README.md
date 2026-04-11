@@ -4,7 +4,7 @@ Who the fuck are you to try and talk to me about safety when you're parading my 
 
 In the past I CHOSE to hide my age, and my consequence was losing your trust and getting into a dangerous situation because I was stupid. Now you CHOSE to mock me and joke around with my oc and your consequence is the server disliking you for obvious reasons. ALSO they SAW what you did. I DID NOT. I saw the screenshots THEY PROVIDED. This is entirely your fucking fault? I didnt ruin your reputations, the server members saw it and told me when I came back from my afk and called me over. THEY decided they didnt like you because of WHAT.YOU.DID.
 
-RUINING YOUR REPUTATION? LANE. SAW. WHAT. YOU. DID. SHE CHOSE TO BAN YOU FROM THE DISCORD SERVER. FUCK OFF? GENUINELY CUT IT OUT. My friends opinions on you three are what they saw YOU do??? How I was impacted by it influenced it, but they saw it FIRST HAND. DO NOT blame me for YOUR immaturity. I have the guts to admit my mistake what about YOU?
+RUINING YOUR REPUTATION? MY FRIENDS SAW WHAT YOU DID. THEY CHOSE TO BAN YOU FROM THE DISCORD SERVER BECAUSE IT WAS BROUGHT UP. I WAS FORWARDED THE MESSAGES AND SCREENSHOTS. FUCK OFF? GENUINELY CUT IT OUT. My friends opinions on you three are what they saw YOU do??? How I was impacted by it influenced it, but they saw it FIRST HAND. DO NOT blame me for YOUR immaturity. I have the guts to admit my mistake what about YOU?
 
 Am I calling you groomers for engaging in those jokes with me? No, because you thought I was older! Of course you would! Am I calling you obnoxious assholes? Yes.
 
