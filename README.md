@@ -2,7 +2,7 @@ In response to you once again, I admitted that. I admit what I did was wrong. I 
 
 Who the fuck are you to try and talk to me about safety when you're parading my character around and poking fun at me? I stated time and time again in our conversation on how I acknowledge what I did was wrong and now you're dragging it through the dirt because you're thrown under the bus for what YOU chose to do. 
 
-In the past I CHOSE to hide my age, and my consequence was losing your trust and getting into a dangerous situation because I was stupid. Now you CHOSE to mock me and joke around with my oc and your consequence is the server disliking you for obvious reasons.
+In the past I CHOSE to hide my age, and my consequence was losing your trust and getting into a dangerous situation because I was stupid. Now you CHOSE to mock me and joke around with my oc and your consequence is the server disliking you for obvious reasons. ALSO they SAW what you did. I DID NOT. I saw the screenshots THEY PROVIDED. This is entirely your fucking fault? I didnt ruin your reputations, the server members saw it and told me when I came back from my afk and called me over. THEY decided they didnt like you because of WHAT.YOU.DID.
 
 RUINING YOUR REPUTATION? LANE. SAW. WHAT. YOU. DID. SHE CHOSE TO BAN YOU FROM THE DISCORD SERVER. FUCK OFF? GENUINELY CUT IT OUT. My friends opinions on you three are what they saw YOU do??? How I was impacted by it influenced it, but they saw it FIRST HAND. DO NOT blame me for YOUR immaturity. I have the guts to admit my mistake what about YOU?
 
