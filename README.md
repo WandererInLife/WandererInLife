@@ -6,6 +6,8 @@ In the past I CHOSE to hide my age, and my consequence was losing your trust and
 
 RUINING YOUR REPUTATION? LANE. SAW. WHAT. YOU. DID. SHE CHOSE TO BAN YOU FROM THE DISCORD SERVER. FUCK OFF? GENUINELY CUT IT OUT. My friends opinions on you three are what they saw YOU do??? How I was impacted by it influenced it, but they saw it FIRST HAND. DO NOT blame me for YOUR immaturity. I have the guts to admit my mistake what about YOU?
 
+Am I calling you groomers for engaging in those jokes with me? No, because you thought I was older! Of course you would! Am I calling you obnoxious assholes? Yes.
+
 -
 Ok. Listen here NO1, NO2, AND NO3 [you know very well who you are] do NOT fucking touch my ocs and mock me behind my back then try and act all innocent, ok? My ocs are representations of me in various different forms, so using them for a 'joke' when we are not even friends anymore is hysterical???? If you don't want to associate with me, then stop fucking dressing up as my ocs who are DEFINITELY associated with me and are coded with some of my personal struggles???? 
 
