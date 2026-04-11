@@ -6,6 +6,8 @@ You ask people to be patient and considerate? 'Bridget would be so mad if she sa
 
 I acknowledge my mistakes, yes, and I am working on it bit by bit, then you go and do all of this shit? You have got to lack a few certain components in your head because this dumbass behaviour genuinely made me go back to level 1 again. FUCK OFF AND CONSIDER OTHER PEOPLES EMOTIONS NEXT TIME. If your 'joke' is harming someone? Then don't even FUCKING 'joke' about it?!
 
+Get that skin OUT of your account. You two are twenty and eighteen. Just quit it. Don't pull the 'oh youre acting like you dont want people expressing themselves!' There's a huge difference between the 'act your age' mentality and 'act like a decent human being or at least try to' mentality. 
+
 ![Image](https://github.com/user-attachments/assets/661120cc-1ade-42f6-9749-e8863423258e)
 
 Uh hi ! I guess. I'm Bridget or Wanderer, choose your pick, and I'm a fan of Percy Jackson, Harry Potter and Transformers. I'm weird ? I know.
