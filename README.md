@@ -21,3 +21,8 @@ I acknowledge my mistakes, yes, and I am working on it bit by bit, then you go a
 
 Get that skin OUT of your account. You two are twenty and eighteen. Just quit it. Don't pull the 'oh youre acting like you dont want people expressing themselves!' There's a huge difference between the 'act your age' mentality and 'act like a decent human being or at least try to' mentality. 
 
+-
+
+
+Just an addition, but I cannot believe I genuinely wanted to be friends with you again a few weeks ago! 'Good terms' my ass! Mocking me behind my back but oh-so-conveniently in front of my TWO BEST FRIENDS is h i l a r i o u s.
+
