@@ -39,8 +39,11 @@ DNI list :
 
 IWEC / THIN ICE : 
 ➜ People who pretend OR say they have DID without a diagnosis OR use it as an aesthetic - I understand this can be viewed as harsh, I really do, but there isn't a shame in saying you kin characters or using the term coping links. Spreading all of this online without consultation from a medical professional can lead to a warped view of people who actually have DID which I researched on, which heavily clashes with the ones I see on ponytown. I suspect I have a sort of neurodivergency, but you don't see me going around claiming it because I know I could very well be wrong. There is no harm in suspecting it, but there is harm in saying it as fact and adding fuel to the fire of the already large misinformation about DID. DID is not just multiple personalities. 
+
 https://www.sheppardpratt.org/knowledge-center/condition/dissociative-identity-disorder-did/   <- [HEAVY EMPHASIS ON THIS ONE]
+
 https://my.clevelandclinic.org/health/diseases/9792-dissociative-identity-disorder-multiple-personality-disorder
+
 https://en.wikipedia.org/wiki/Dissociative_identity_disorder
 
 ➜ Proshippers and Darkshippers. Before you come running at me, yes I believe people should not be harassed or targeted because of their fictional interests. However the community itself is mixed. I am okay with dark topics. I am not okay and feel uncomfortable with the romanticization of said dark topics. Please understand the difference 
