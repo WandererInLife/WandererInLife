@@ -21,6 +21,8 @@ DNI list :
 
 ➜ Zoophiles 
 
+➜ Groomers
+
 ➜ Homophobes and Transphobes alike 
 
 ➜ Racists 
@@ -36,12 +38,27 @@ DNI list :
 ➜ Fuckers who spend their time making peoples lives miserable when it's just some petty drama and theyre trying to move on. Yeah I've seen people like you
 
 IWEC / THIN ICE : 
-➜ People who pretend OR say they have DID without a solid diagnosis OR use it as an aesthetic - I understand this can be viewed as harsh, I really do, but there isn't a shame in saying you kin characters or using the term coping links. Spreading all of this online without consultation from a medical professional can lead to a warped view of people who actually have DID which I researched on, which heavily clashes with the ones I see on ponytown. I suspect I have a sort of neurodivergency, but you don't see me going around claiming it because I know I could very well be wrong 
+➜ People who pretend OR say they have DID without a diagnosis OR use it as an aesthetic - I understand this can be viewed as harsh, I really do, but there isn't a shame in saying you kin characters or using the term coping links. Spreading all of this online without consultation from a medical professional can lead to a warped view of people who actually have DID which I researched on, which heavily clashes with the ones I see on ponytown. I suspect I have a sort of neurodivergency, but you don't see me going around claiming it because I know I could very well be wrong. There is no harm in suspecting it, but there is harm in saying it as fact and adding fuel to the fire of the already large misinformation about DID. DID is not just multiple personalities. 
+https://www.sheppardpratt.org/knowledge-center/condition/dissociative-identity-disorder-did/   <- [HEAVY EMPHASIS ON THIS ONE]
+https://my.clevelandclinic.org/health/diseases/9792-dissociative-identity-disorder-multiple-personality-disorder
+https://en.wikipedia.org/wiki/Dissociative_identity_disorder
 
 ➜ Proshippers and Darkshippers. Before you come running at me, yes I believe people should not be harassed or targeted because of their fictional interests. However the community itself is mixed. I am okay with dark topics. I am not okay and feel uncomfortable with the romanticization of said dark topics. Please understand the difference 
 
-➜ People who make inaproppiate jokes ALL the time. Short warning, I'm a teenager, so I'm aware I can be a bit edgy or crude at times - but do not use ONLY inaproppiate humour around me as I'm trying to move on from that part of my life. In particular, do not make those kind of jokes with me personally - especially in private - if you're. like. 20+
+➜ People who make inaproppiate jokes ALL the time. Short warning, I'm a teenager, so I'm aware I can be a bit edgy or crude at times - but do not use ONLY inaproppiate humour around me as I'm trying to move on from that part of my life. In particular, do not make those kind of jokes with me personally - especially in private - if you're. like. 20+ 
+
 ﹌﹌﹌﹌﹌﹌﹌﹌
 
-Is it long? I know. 
+Is it long? I know. If you are associated in support of anyone who fits with this list, please interact with caution.
+
+![Image](https://github.com/user-attachments/assets/efb4b456-b778-44c1-a6b8-e07fc32087c2)
+
+︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+
+OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO-KAY. ONTO INTERESTS!
+☆★☆★☆★☆
+໒꒱ INTERESTS
+
+‹𝟹 WRITIN
+
 
