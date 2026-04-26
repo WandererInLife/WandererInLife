@@ -46,13 +46,15 @@ https://my.clevelandclinic.org/health/diseases/9792-dissociative-identity-disord
 
 https://en.wikipedia.org/wiki/Dissociative_identity_disorder
 
+https://www.reddit.com/r/PonyTown/comments/x00kpj/the_problem_with_pt_and_did/
+
 ➜ Proshippers and Darkshippers. Before you come running at me, yes I believe people should not be harassed or targeted because of their fictional interests. However the community itself is mixed. I am okay with dark topics. I am not okay and feel uncomfortable with the romanticization of said dark topics. Please understand the difference 
 
 ➜ People who make inaproppiate jokes ALL the time. Short warning, I'm a teenager, so I'm aware I can be a bit edgy or crude at times - but do not use ONLY inaproppiate humour around me as I'm trying to move on from that part of my life. In particular, do not make those kind of jokes with me personally - especially in private - if you're. like. 20+ 
 
 ﹌﹌﹌﹌﹌﹌﹌﹌
 
-Is it long? I know. If you are associated in support of anyone who fits with this list, please interact with caution.
+Is it long? I know. If you are in support of anyone who fits with this list, please interact with caution.
 
 ![Image](https://github.com/user-attachments/assets/efb4b456-b778-44c1-a6b8-e07fc32087c2)
 
