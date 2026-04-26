@@ -12,6 +12,7 @@
 
 ︶︶ She / Her / They / Them. I don't rlly mind. He/Him maybeeeee??? Don't use it often though unless I'm in a male character skin or as a joke bcuz its kinda awkward 4 me q,q. AFAB.
 
+﹌﹌﹌﹌﹌﹌﹌﹌
 ˋ°•*⁀➷
 Ok. Quick briefing of my lists . 
 
@@ -40,5 +41,7 @@ IWEC / THIN ICE :
 ➜ Proshippers and Darkshippers. Before you come running at me, yes I believe people should not be harassed or targeted because of their fictional interests. However the community itself is mixed. I am okay with dark topics. I am not okay and feel uncomfortable with the romanticization of said dark topics. Please understand the difference 
 
 ➜ People who make inaproppiate jokes ALL the time. Short warning, I'm a teenager, so I'm aware I can be a bit edgy or crude at times - but do not use ONLY inaproppiate humour around me as I'm trying to move on from that part of my life. In particular, do not make those kind of jokes with me personally - especially in private - if you're. like. 20+
+﹌﹌﹌﹌﹌﹌﹌﹌
 
+Is it long? I know. 
 
