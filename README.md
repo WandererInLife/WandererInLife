@@ -62,6 +62,16 @@ OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO-KAY. ONTO INTERESTS!
 ☆★☆★☆★☆
 ໒꒱ INTERESTS
 
-‹𝟹 WRITIN
+‹𝟹 WRITING AND OC-MAKING : I REALLY LOVE MAKING OCS AND MY OCS IN GENERAL!!!
+
+‹𝟹 MUSIC / MUSICALS : [MUSICALS] Hamilton, Six, Epic, Nerdy Prudes Must Die, Heathers, Dear Evan Hansen, etc. [MUSIC] Annabella Dinda , Sushi Soucy , Alex G , Adrianne Lenker , Yaelokre , Lady Gaga , Mitski , TV Girl
+
+‹𝟹 FANDOMS : HARRY POTTER [I DO NOT SUPPORT JK ROWLING] , PERCY JACKSON , THE AMAZING DIGITAL CIRCUS , [Very mild to little-to-none, minus my rewrite] HAZBIN HOTEL
+
+
+-ˋˏ✄- - - - - - - ♡
+<img width="223" height="27" alt="Screenshot 2026-04-26 at 17-18-35 (2) Pinterest" src="https://github.com/user-attachments/assets/1a5bfed7-d63d-4e43-ac75-c8bd1ea70eb7" />
+⁠
+
 
 
