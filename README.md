@@ -46,6 +46,8 @@ IWEC / THIN ICE :
 
 https://www.sheppardpratt.org/knowledge-center/condition/dissociative-identity-disorder-did/   <- [HEAVY EMPHASIS ON THIS ONE]
 
+https://www.businessinsider.com/myths-about-multiple-personalities-you-need-to-stop-believing-2019-12
+
 https://my.clevelandclinic.org/health/diseases/9792-dissociative-identity-disorder-multiple-personality-disorder
 
 https://en.wikipedia.org/wiki/Dissociative_identity_disorder
