@@ -54,6 +54,8 @@ https://en.wikipedia.org/wiki/Dissociative_identity_disorder
 
 https://www.reddit.com/r/PonyTown/comments/x00kpj/the_problem_with_pt_and_did/
 
+< Quick note, being plural is okay. Claiming to have DID without solid research and so on is not>
+
 ➜ Proshippers and Darkshippers. Before you come running at me, yes I believe people should not be harassed or targeted because of their fictional interests. However the community itself is mixed. I am okay with dark topics. I am not okay and feel uncomfortable with the romanticization of said dark topics. Please understand the difference 
 
 ➜ People who make inaproppiate jokes ALL the time. Short warning, I'm a teenager, so I'm aware I can be a bit edgy or crude at times - but do not use ONLY inaproppiate humour around me as I'm trying to move on from that part of my life. In particular, do not make those kind of jokes with me personally - especially in private - if you're. like. 20+ 
